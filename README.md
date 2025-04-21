@@ -44,6 +44,6 @@
 
 16. Приятного аппетита!
 
-![Apples](https://icon2.cleanpng.com/20240410/rps/transparent-tree-branch-realistic-3d-apple-illustration-on-black-backgroun66164b3c50f015.99924269.webp)
+![Apples](https://pngicon.ru/file/uploads/apple.png)
 
 [Рецепт вкусного повидло](https://www.russianfood.com/recipes/recipe.php?rid=163553)
